@@ -8,7 +8,7 @@
 
 - 👯 I’m looking to collaborate on **BMyBest**
 
-- 👨‍💻 All of my projects are available at [comming soon](comming soon)
+- 👨‍💻 All of my projects are available at [comming soon]
 
 - 📫 How to reach me **elodie.mariton@hotmail.fr**
 
